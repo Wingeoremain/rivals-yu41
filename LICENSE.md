@@ -1,4 +1,4 @@
-#  
+#  Personalizado bee swarm simulator scripts é o melhor bee swarm simulator scripts com mira automática e ESP. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
